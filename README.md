@@ -11,4 +11,4 @@
 
 </div><br/>
 
-Apaixonado por jogos e tecnologias. Atualmente estudando programação competitiva.
+Apaixonado por Dark Souls.
